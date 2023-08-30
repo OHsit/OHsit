@@ -1,1 +1,1 @@
-XD kto czyta ✨
+Hi and welcome to my GitHub
